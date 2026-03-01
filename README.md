@@ -11,9 +11,10 @@
 ㅤㅤㅤㅤㅤㅤㅤ
 ㅤㅤㅤㅤㅤㅤㅤ
 - For further information about me, or if you are interested in becoming friends, I kindly ask that you approach me directly.
-
+ㅤㅤㅤㅤㅤㅤㅤ
 ㅤㅤㅤㅤㅤㅤㅤ
 - I tend to be shy and often find it difficult to initiate conversations.
+
 
   **Extra:** I'm a student and a Chinese teacher/tutor of the young learners.
 
