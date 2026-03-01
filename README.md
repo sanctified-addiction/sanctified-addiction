@@ -1,16 +1,13 @@
-## Hi there 👋
+![image](https://github.com/sanctified-addiction/sanctified-addiction/blob/5a67676dc4895dd5b649bc7668fe7edc705e35ca/saihate-saihate-station.webp)
 
-<!--
-**sanctified-addiction/sanctified-addiction** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+_MBTI: INTJ_
 
-Here are some ideas to get you started:
+- Employed
+  
+- No any additional profile links because I believe my Strawpage already provides sufficient information you need to know about me.
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+- For further information about me, or if you are interested in becoming friends, I kindly ask that you approach me directly.
+
+- I tend to be shy and often find it difficult to initiate conversations. But I appreciate it when others do!
+
+  ***EXTRA:*** I'm a student who's about to go to the university and a Chinese teacher/tutor of the young learners.
