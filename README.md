@@ -1,4 +1,4 @@
-![image](https://github.com/sanctified-addiction/sanctified-addiction/blob/5a67676dc4895dd5b649bc7668fe7edc705e35ca/saihate-saihate-station.webp)
+![image](https://github.com/sanctified-addiction/sanctified-addiction/blob/ff1b0763d9125f379c1fa68a22c4d6aeab9a8142/saihate-saihate-station%20(2).gif)
 
 _MBTI: INTJ_
 
