@@ -1,6 +1,6 @@
 ꒷꒦꒷꒦꒷꒦꒷꒦꒷꒦꒷꒷꒦꒷꒦꒷꒦꒷꒦꒷꒦꒷꒷꒦꒷꒦꒷꒦꒷꒦꒷꒦꒷꒦꒷
 
-![image](https://github.com/sanctified-addiction/sanctified-addiction/blob/ffae2a6e09f02e9aa9ca46afa998c8f57af210da/saihate.jpg)
+![image](https://github.com/sanctified-addiction/sanctified-addiction/blob/16564352cbb01732feccd1b1942cd3a7462338cd/saihate-saihate-station%20(2).gif)
 
 ˗ˏˋ MBTI: INTJ
 
