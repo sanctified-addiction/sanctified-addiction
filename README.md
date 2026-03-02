@@ -6,9 +6,11 @@
 
 ˗ˏˋ City: Tachileik
 
-˗ˏˋ Employed :  A Chinese teacher/tutor of the young learners
+˗ˏˋ Employed 
+
+˗ˏˋ  A Chinese teacher/tutor of the young learners
  ㅤㅤㅤㅤㅤㅤㅤ
-˗ˏˋ A studentㅤ
+˗ˏˋ  A studentㅤ
 ㅤㅤㅤㅤ
 - No extra profile links needed, my Strawpage already has sufficient information.
 ㅤㅤㅤㅤㅤㅤㅤ                  
