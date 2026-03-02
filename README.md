@@ -8,14 +8,12 @@
 
 ˗ˏˋ Employed 
 
-˗ˏˋ  A Chinese teacher/tutor of the young learners
+- A student
 
-˗ˏˋ  A studentㅤ
+- A Chinese teacher/tutor of the young learnersㅤ
 ㅤㅤㅤㅤ
 - No extra profile links needed, my Strawpage already has sufficient information.
-ㅤㅤㅤㅤㅤㅤㅤ                  
-ㅤㅤㅤㅤㅤㅤㅤ
+
 - For more about me, or if you’d like to be friends — please reach out directly.
-ㅤㅤㅤㅤㅤㅤㅤ                  
-ㅤㅤㅤㅤㅤㅤㅤ
+  
 - I can be shy, so starting conversations isn’t always easy for me.
