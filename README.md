@@ -4,18 +4,16 @@
 
 ˗ˏˋ MBTI: INTJ
 
-˗ˏˋ Employed
+˗ˏˋ City: Tachileik
+
+˗ˏˋ Employed :  A Chinese teacher/tutor of the young learners
  ㅤㅤㅤㅤㅤㅤㅤ
-  ㅤㅤㅤㅤㅤㅤㅤ
-- No any additional profile links, as I believe my Strawpage already provides sufficient information you need to know about me.
+˗ˏˋ A studentㅤ
+ㅤㅤㅤㅤ
+- No extra profile links needed, my Strawpage already has sufficient information.
+ㅤㅤㅤㅤㅤㅤㅤ                  
 ㅤㅤㅤㅤㅤㅤㅤ
+- For more about me, or if you’d like to be friends — please reach out directly.
+ㅤㅤㅤㅤㅤㅤㅤ                  
 ㅤㅤㅤㅤㅤㅤㅤ
-- For further information about me, or if you are interested in becoming friends, I kindly ask that you approach me directly.
-ㅤㅤㅤㅤㅤㅤㅤ
-ㅤㅤㅤㅤㅤㅤㅤ
-- I tend to be shy and often find it difficult to initiate conversations.
-ㅤㅤㅤㅤㅤㅤㅤ
-ㅤㅤㅤㅤㅤㅤㅤ
-
-  **Extra:** I'm a student and a Chinese teacher/tutor of the young learners.
-
+- I can be shy, so starting conversations isn’t always easy for me.
