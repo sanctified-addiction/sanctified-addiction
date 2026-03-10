@@ -8,9 +8,9 @@
 
 ˗ˏˋ Employed 
 
-- A student
+˗ˏˋ A student
 
-- A Chinese teacher/tutor of the young learnersㅤ
+- A Chinese teacher/tutor of the young learners.ㅤ
 ㅤㅤㅤㅤ
 - No extra profile links needed, my Strawpage already has sufficient information.
   
