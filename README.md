@@ -4,7 +4,7 @@
 
 ˗ˏˋ MBTI: INTJ
 
-˗ˏˋ City: Tachileik
+˗ˏˋ Ethnicity: Han-Dai （ 汉傣族 ）
 
 ˗ˏˋ Employed 
 
