@@ -3,7 +3,7 @@ INTRODUCTION:
 Perferred Names: OVAL/OVALTINE/HUI
 - (any alternative nicknames are welcome, as long as it isn't inappropriate.)
 
-![image](https://github.com/sanctified-addiction/sanctified-addiction/blob/main/honkaistarrail-train.gif?raw=true)
+![image](https://github.com/sanctified-addiction/sanctified-addiction/blob/b11c2f5bc9adbccbd23a5eb13aafa48977b6d86c/honkai-star-rail-pom-pom.gif)
 
 ˗ˏˋ MBTI: INTJ
 
