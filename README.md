@@ -9,6 +9,8 @@
 
 ˗ˏˋ **Pronouns**: ANY
 
+˗ˏˋ **Sexuality**: Bisexual
+
 ˗ˏˋ **Ethnicity**: Han-Dai （ 汉傣族 ）
 
 ### CURRENT STATUS:
