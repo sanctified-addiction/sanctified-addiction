@@ -34,4 +34,5 @@
 ![image](https://github.com/sanctified-addiction/sanctified-addiction/blob/b11c2f5bc9adbccbd23a5eb13aafa48977b6d86c/honkai-star-rail-pom-pom.gif)
 ### NOTES:
 - I can be shy, so starting conversations isn’t always easy for me.
+
 - I enjoy light-hearted humor and interactions, so kindly considered this if you strongly dislike jokes.
