@@ -1,17 +1,19 @@
-꒷꒦꒷꒦꒷꒦꒷꒦꒷꒦꒷꒷꒦꒷꒦꒷꒦꒷꒦꒷꒦꒷꒷꒦꒷꒦꒷꒦꒷꒦꒷꒦꒷꒦꒷
+INTRODUCTION:
 
-![image](https://github.com/sanctified-addiction/sanctified-addiction/blob/16564352cbb01732feccd1b1942cd3a7462338cd/saihate-saihate-station%20(2).gif)
+Perferred Names: OVAL/OVALTINE/HUI
+- (any alternative nicknames are welcome, as long as it isn't inappropriate.)
+
+![image](https://github.com/sanctified-addiction/sanctified-addiction/blob/main/honkaistarrail-train.gif?raw=true)
 
 ˗ˏˋ MBTI: INTJ
 
+˗ˏˋ Pronouns: ANY
+
 ˗ˏˋ Ethnicity: Han-Dai （ 汉傣族 ）
 
-˗ˏˋ Employed 
+˗ˏˋ Employed [Chinese teacher/tutor of the young learners.]
 
-˗ˏˋ A student
-
-- A Chinese teacher/tutor of the young learners.ㅤ
-ㅤㅤㅤㅤ
-- No extra profile links needed, my Strawpage already has sufficient information.
+˗ˏˋ A Uni student
   
-- I can be shy, so starting conversations isn’t always easy for me.
+˗ˏˋ I can be shy, so starting conversations isn’t always easy for me.
+
