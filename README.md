@@ -1,6 +1,6 @@
 # INTRODUCTION;
 
-## Perferred Names: OVAL/OVALTINE/HUI
+## Preferred Names: OVAL/OVALTINE/HUI
 - (any alternative nicknames are welcome, as long as they aren't inappropriate.)
 
   ![image](https://github.com/sanctified-addiction/sanctified-addiction/blob/379d1bd015c6686ef734e4d8c502ebdde8b04fc4/pompomemotka3-supiryrzare.gif)
