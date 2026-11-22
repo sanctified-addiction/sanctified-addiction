@@ -2,7 +2,7 @@
 # 𓍯INTRODUCTION;
 
 ## ⌕ Preferred Names: OVAL/OVALTINE/HUI  ๋࣭ ⭑
-ⵌ (any alternative nicknames are welcome, as long as they aren't inappropriate.)
+- (any alternative nicknames are welcome, as long as they aren't inappropriate.)
 
   ![image](https://github.com/sanctified-addiction/sanctified-addiction/blob/main/a_06303d0a525578aad2f61d6ff9637a6b_gif%20(600%C3%97211).gif)
   
