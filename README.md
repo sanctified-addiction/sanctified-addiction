@@ -18,7 +18,7 @@
 
 - Employed [An Early Childhood Chinese Educator & Tutor]
   
-     BUT
+     AND
   
 - A Student ⚞`⎚⩊⎚´⚟ ..as well.
   
