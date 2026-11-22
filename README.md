@@ -46,6 +46,6 @@
    ### [! 新 ?](https://ethnic.atabook.org/)
   ![image](https://github.com/sanctified-addiction/sanctified-addiction/blob/main/cat-divider.gif)
 
-⠀⋆⁺₊⋆ ━━━━━━━━━━⊱༒︎ 𓉸ྀི ༒︎⊰━━━━━━━━━━ ⋆⁺₊⋆
+⠀⋆⁺₊⋆ ━━━━━━━━⊱༒︎ 𓉸ྀི ༒︎⊰━━━━━━━━ ⋆⁺₊⋆
      
      
