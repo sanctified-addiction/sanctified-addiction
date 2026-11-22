@@ -5,7 +5,7 @@
 ⵌ (any alternative nicknames are welcome, as long as they aren't inappropriate.)
 
   ![image](https://github.com/sanctified-addiction/sanctified-addiction/blob/main/a_06303d0a525578aad2f61d6ff9637a6b_gif%20(600%C3%97211).gif)
-
+  
 ˗ˏˋ **MBTI**: INTJ
 
 ˗ˏˋ **Pronouns**: ANY
@@ -37,7 +37,7 @@
 - Cruel Or Abusive Individuals
 
 ![image](https://github.com/sanctified-addiction/sanctified-addiction/blob/main/a_06303d0a525578aad2f61d6ff9637a6b_gif%20(600%C3%97211).gif)
-
+｡𖦹°‧
 ### _✎ NOTES:_
 - I can be shy, so starting conversations isn’t always easy for me... 𐔌 ˊᵕˋ 𐦯
 
@@ -46,6 +46,6 @@
    ### [! 新 ?](https://ethnic.atabook.org/)
   ![image](https://github.com/sanctified-addiction/sanctified-addiction/blob/main/cat-divider.gif)
 
-⠀⋆⁺₊⋆ ━━━━━━━━━━━━⊱༒︎ 𓉸ྀི ༒︎⊰━━━━━━━━━━━━ ⋆⁺₊⋆
+⠀⋆⁺₊⋆ ━━━━━━━━━━⊱༒︎ 𓉸ྀི ༒︎⊰━━━━━━━━━━ ⋆⁺₊⋆
      
      
