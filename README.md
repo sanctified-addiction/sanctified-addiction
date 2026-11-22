@@ -1,5 +1,5 @@
   ![image](https://github.com/sanctified-addiction/sanctified-addiction/blob/main/divider-header.gif)
-# 𓍯𓂃INTRODUCTION;
+# 𓍯INTRODUCTION;
 
 ## ⌕ Preferred Names: OVAL/OVALTINE/HUI  ๋࣭ ⭑
 ⵌ (any alternative nicknames are welcome, as long as they aren't inappropriate.)
@@ -46,6 +46,6 @@
    ### [! 新 ?](https://ethnic.atabook.org/)
   ![image](https://github.com/sanctified-addiction/sanctified-addiction/blob/main/cat-divider.gif)
 
-⠀⋆⁺₊⋆ ━━━━━━━━━━━━━━━━━━━━━━━━⊱༒︎ 𓉸ྀི ༒︎⊰━━━━━━━━━━━━ ⋆⁺₊⋆
+⠀⋆⁺₊⋆ ━━━━━━━━━━━━⊱༒︎ 𓉸ྀི ༒︎⊰━━━━━━━━━━━━ ⋆⁺₊⋆
      
      
