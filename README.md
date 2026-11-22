@@ -13,27 +13,27 @@
 
 ˗ˏˋ **Ethnicity**: Han-Dai （ 汉傣族 ）
 
-### CURRENT STATUS:
+### _CURRENT STATUS:_
 
 - Employed [An Early Childhood Chinese Educator & Tutor]
 
 - A University Student
 
   ![image](https://github.com/sanctified-addiction/sanctified-addiction/blob/main/dazai-osamu-osamu-dazai.gif)
-### LIKES/INTERESTS:
+### _LIKES/INTERESTS:_
 - Designing characters & Listening To Music (Any Kinds)
 - Reading, Writing & Drawing
 - History & Arts
 - Watching Homicide/Mystery Cases & True Crime Documentaries
 
-### DISLIKES/NOT A FAN OF:
+### _DISLIKES/NOT A FAN OF:_
 - Cockroaches
 - Crude/Offensive Humor
 - People Crossing Boundaries
 - Cruel Or Abusive Individuals
 
-![image](https://github.com/sanctified-addiction/sanctified-addiction/blob/b11c2f5bc9adbccbd23a5eb13aafa48977b6d86c/honkai-star-rail-pom-pom.gif)
-### NOTES:
+  ![image](https://github.com/sanctified-addiction/sanctified-addiction/blob/main/jesting-dazai.gif)
+### _✎ NOTES:_
 - I can be shy, so starting conversations isn’t always easy for me... ( •̯́ ^ •̯̀)
 
 - I enjoy light-hearted humor and interactions, so kindly considered this if you strongly dislike jokes! 𐔌 ˊᵕˋ 𐦯
