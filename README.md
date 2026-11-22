@@ -3,7 +3,7 @@
 ## Preferred Names: OVAL/OVALTINE/HUI
 - (any alternative nicknames are welcome, as long as they aren't inappropriate.)
 
-  ![image](https://github.com/sanctified-addiction/sanctified-addiction/blob/379d1bd015c6686ef734e4d8c502ebdde8b04fc4/pompomemotka3-supiryrzare.gif)
+  ![image](https://github.com/sanctified-addiction/sanctified-addiction/blob/main/a_06303d0a525578aad2f61d6ff9637a6b_gif%20(600%C3%97211).gif)
 
 ˗ˏˋ **MBTI**: INTJ
 
@@ -39,3 +39,4 @@
 
 - I enjoy light-hearted humor and interactions, so kindly considered this if you strongly dislike jokes! 𐔌 ˊᵕˋ 𐦯
   ### [! 新 ?](https://ethnic.atabook.org/)
+  ![image]
