@@ -19,8 +19,7 @@
 
 - A University Student
 
-  ![image](https://github.com/sanctified-addiction/sanctified-addiction/blob/379d1bd015c6686ef734e4d8c502ebdde8b04fc4/hsr.gif)
-
+  ![image](https://github.com/sanctified-addiction/sanctified-addiction/blob/main/dazai-osamu-osamu-dazai.gif)
 ### LIKES/INTERESTS:
 - Designing characters & Listening To Music (Any Kinds)
 - Reading, Writing & Drawing
