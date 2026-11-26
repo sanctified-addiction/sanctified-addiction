@@ -44,8 +44,9 @@
 - I enjoy light-hearted humor and interactions, so kindly considered this if you strongly dislike jokes! 𐔌 ˊᵕˋ 𐦯
 
    ### [! 新 ?](https://ethnic.atabook.org/)
-  ![image](https://github.com/sanctified-addiction/sanctified-addiction/blob/main/cat-divider.gif)
 
-⠀⋆⁺₊⋆ ━━━━━━━━⊱ 𓉸ྀི ⊰━━━━━━━━ ⋆⁺₊⋆
-     
+⋆⁺₊⋆ ━━━━━━━━⊱ 𓉸ྀི ⊰━━━━━━━━ ⋆⁺₊⋆
+![image](https://github.com/sanctified-addiction/sanctified-addiction/blob/main/cat-divider.gif)
+
+ ![image](https://github.com/sanctified-addiction/sanctified-addiction/blob/main/divider-header.gif)
      
